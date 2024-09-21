@@ -5,6 +5,7 @@ Since the days of Atlantis, we merfolk have chosen to keep our distance from hum
 
 ### Stick to Large, Private, Aquatic Spaces
 Always have a preference for aquatic spaces as you never know when you’ll need to make a quick getaway! Nobody likes to feel restricted, and thankfully the Los Angeles area has ample options to swim in with a diverse ecology. It's also best to avoid chlorinated pools; they may sound tempting, but your gills will thank you for staying away.
+Locations like Marina del Rey and Laguna Beach are universally adored for their private docks and bouldered/enclosed spaces. Who knows, you might even catch yourself a nice trout.
 
 ### Be a Role Model
 It is imperative to protect the environment—so no littering! Littering is treasonous. Be a role model and encourage good behavior among humans. Engage with our environmental group (the secret-mermaid-society in disguise), because unlike humans, we actually understand the urgency.
@@ -12,7 +13,7 @@ It is imperative to protect the environment—so no littering! Littering is trea
 <img src="" alt="AI picture of knock off ariel and knock off  prince eric enjoying champagne or something a princess would use">
 
 ### Don't forget to take Time to Relax
-Don't stress! You're young, you're beautiful, and life is great --even with a tail. Find a quiet spot to relax and enjoy the moment.
+Don't stress! You're young, you're beautiful, and life is great --even with a tail. Find a quiet spot to relax and enjoy the moment. There's no going wrong with having dinner anywhere along the dock at the San Pedro Fish Market, or at Redondo Beach's many seafood restaurants located on the pier.
 
 <img width="300" src="https://github.com/steventhestudent/how-to-survive-as-a-mermaid-in-la/blob/main/_a4acd498-f160-44c0-b331-e116640428bb.jpg?raw=true">
 
