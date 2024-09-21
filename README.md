@@ -4,7 +4,7 @@
 Since the days of Atlantis, we merfolk have chosen to keep our distance from humans. However, with the increasing destruction of our habitats, many of us now find ourselves forced to surface more frequently. This guide will help you navigate LA, to remind you that you can still thrive.
 
 ### Stick to Large, Private, Aquatic Spaces
-Always have a preference for aquatic spaces—you never know when you’ll need a quick getaway! Good luck finding me in the water! Avoid chlorinated pools; they may sound tempting, but your gills will thank you for staying away.
+Always have a preference for aquatic spaces as you never know when you’ll need to make a quick getaway! Nobody likes to feel restricted, and thankfully the Los Angeles area has ample options to swim in with a diverse ecology. It's also best to avoid chlorinated pools; they may sound tempting, but your gills will thank you for staying away.
 
 ### Be a Role Model
 It is imperative to protect the environment—so no littering! Littering is treasonous. Be a role model and encourage good behavior among humans. Engage with our environmental group (the secret-mermaid-society in disguise), because unlike humans, we actually understand the urgency.
