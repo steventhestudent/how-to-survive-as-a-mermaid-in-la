@@ -3,22 +3,21 @@
 ### Addressing the Elephant in the Room
 Since the days of Atlantis, we merfolk have chosen to keep our distance from humans. However, with the increasing destruction of our habitats, many of us now find ourselves forced to surface more frequently. This guide will help you navigate LA, to remind you that you can still thrive.
 
-### stick to large, private, aquatic spaces
-preference for aquatic spaces because what if u need to get away!? good luck finding me in the water!
-avoid chlorinated, it may sound nice, but your gills will thank you!
+### Stick to Large, Private, Aquatic Spaces
+Always have a preference for aquatic spaces—you never know when you’ll need a quick getaway! Good luck finding me in the water! Avoid chlorinated pools; they may sound tempting, but your gills will thank you for staying away.
 
-### Be a role model
-it is imperative to clean the environment so don't litter, litter bugs, that's treasonous. encourage good behavior towards society by humans at all times. engage with our environmental group (secret-mermaid-society in disguise) (which we actually understand the urgency unlike humans).
+### Be a Role Model
+It is imperative to protect the environment—so no littering! Littering is treasonous. Be a role model and encourage good behavior among humans. Engage with our environmental group (the secret-mermaid-society in disguise), because unlike humans, we actually understand the urgency.
 
 <img src="" alt="AI picture of knock off ariel and knock off  prince eric enjoying champagne or something a princess would use">
 
-### Try not to think about it too much
-don't beat yourself up about it your young, your beautiful, lifes great, but now you have a tail, chill out somewhere. enjoy yourself YOLO.
+### Don't forget to take Time to Relax
+Don't stress! You're young, you're beautiful, and life is great—even with a tail. Find a place to chill, enjoy yourself, and remember: YOLO.
 
 <img width="300" src="https://github.com/steventhestudent/how-to-survive-as-a-mermaid-in-la/blob/main/_a4acd498-f160-44c0-b331-e116640428bb.jpg?raw=true">
 
-### Take cover
-coming out of the beach? Towels towels towels! Bring a large umbrella to avoid being sighted aerially, and a couple towels while the tail subsides. Sunglasses help keep anonymous too.
+### Take Cover
+Coming out of the ocean? Towels, towels, towels! Bring a large umbrella to avoid being spotted from above and have a couple of towels handy while your tail subsides. Sunglasses also help keep you anonymous.
 
-### conclusion
-times are tough, but it's important to remind yourself you're just one merperson, and you shouldn't take life too seriously. take it with a grain of salt, etc. and please, be discreet!
+### Conclusion
+Times are tough, but remember, you're just one merperson, and life doesn't need to be taken too seriously. Take it all with a grain of salt, stay discreet, and enjoy the ride!
