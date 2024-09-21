@@ -12,7 +12,7 @@ It is imperative to protect the environment—so no littering! Littering is trea
 <img src="" alt="AI picture of knock off ariel and knock off  prince eric enjoying champagne or something a princess would use">
 
 ### Don't forget to take Time to Relax
-Don't stress! You're young, you're beautiful, and life is great—even with a tail. Find a place to chill, enjoy yourself, and remember: YOLO.
+Don't stress! You're young, you're beautiful, and life is great --even with a tail. Find a quiet spot to relax and enjoy the moment.
 
 <img width="300" src="https://github.com/steventhestudent/how-to-survive-as-a-mermaid-in-la/blob/main/_a4acd498-f160-44c0-b331-e116640428bb.jpg?raw=true">
 
@@ -20,4 +20,4 @@ Don't stress! You're young, you're beautiful, and life is great—even with a ta
 Coming out of the ocean? Towels, towels, towels! Bring a large umbrella to avoid being spotted from above and have a couple of towels handy while your tail subsides. Sunglasses also help keep you anonymous.
 
 ### Conclusion
-Times are tough, but remember, you're just one merperson, and life doesn't need to be taken too seriously. Take it all with a grain of salt, stay discreet, and enjoy the ride!
+Times are tough, but remember, you're just one merperson, and life doesn't need to be taken too seriously. Take it all with a grain of salt, stay discreet, and enjoy the ride.
