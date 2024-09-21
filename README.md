@@ -3,8 +3,12 @@
 ### Addressing the Elephant in the Room
 Since the days of Atlantis, we merfolk have chosen to keep our distance from humans. However, with the increasing destruction of our habitats, many of us now find ourselves forced to surface more frequently. This guide will help you navigate LA and remind you that moving forward and even thriving is still possible.
 
+<img src="OIG1.h.jpg" width="300">
+
 ### Stick to Large, Private, Aquatic Spaces
 Always prefer aquatic spaces, as you never know when you’ll need to make a quick getaway. Nobody likes to feel restricted, and thankfully, the Los Angeles area offers ample options to swim in with diverse ecology. Avoid chlorinated pools; they may sound tempting, but your gills will thank you for staying away. Locations like Marina del Rey and Laguna Beach are adored for their private docks and bouldered, enclosed spaces.
+
+<img src="OIG2.T5..jpg" width="300">
 
 ### Be a Role Model
 It is imperative to protect the environment—so no littering! Littering is treasonous. Be a role model and encourage good behavior among humans. Engage with our environmental group (the secret-mermaid-society in disguise), because unlike humans, we actually understand the urgency.
