@@ -35,5 +35,7 @@ Coming out of the ocean? Don't forget your beach towels! Bring a large umbrella 
 
 &nbsp;
 
+<img src="New Project.png" height="150">
+
 ### Conclusion
 Times may be tougher than ever, but remember, you're just one mer-person, and life doesn't need to be taken too seriously. Take it all with a grain of salt, behave discreetly, and enjoy the ride.
