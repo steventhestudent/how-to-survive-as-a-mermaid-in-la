@@ -17,7 +17,7 @@ Don't stress! You're young, you're beautiful, and life is great --even with a ta
 <img width="300" src="https://github.com/steventhestudent/how-to-survive-as-a-mermaid-in-la/blob/main/_a4acd498-f160-44c0-b331-e116640428bb.jpg?raw=true">
 
 ### Take Cover
-Coming out of the ocean? Towels, towels, towels! Bring a large umbrella to avoid being spotted from above and have a couple of towels handy while your tail subsides. Sunglasses also help keep you anonymous. Further, unless it is completely unavoidable you should steer clear humans at all times, and especially any scientists.
+Coming out of the ocean? Towels, towels, towels! Bring a large umbrella to avoid being spotted from above and have a couple of towels handy while your tail subsides. Sunglasses also help keep you anonymous. Further, humans should generally be avoided, but especially the scientists.
 
 ### Conclusion
 Times are tough, but remember, you're just one merperson, and life doesn't need to be taken too seriously. Take it all with a grain of salt, stay discreet, and enjoy the ride.
