@@ -1,7 +1,7 @@
 ## How to survive as a mermaid in LA
 
 ### Addressing the Elephant in the Room
-Since the days of Atlantis, we merfolk have chosen to keep our distance from humans. However, with the increasing destruction of our habitats, many of us now find ourselves forced to surface more frequently. This guide will help you navigate LA and remind you that moving forward and even thriving is still possible.
+Since the days of Atlantis, we merfolk have chosen to keep our distance from humans. However, with the increasing destruction of our habitats, many of us now find ourselves forced to surface more frequently. This guide will help you navigate LA and remind you that moving forward and, and thriving even, is still possible.
 
 <img src="OIG1.h.jpg" width="300">
 
